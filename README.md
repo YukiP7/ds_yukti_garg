@@ -91,7 +91,7 @@ ds_yukti_garg/
 For queries, reach out to:  
 **Yukti Garg**  
 📧 `gargyukti112@gmail.com`  
-🌐 [LinkedIn]([https://www.linkedin.com/in/yukti-garg-8397b4218/])
+🌐 https://www.linkedin.com/in/yukti-garg-8397b4218/
 
 ---
 
